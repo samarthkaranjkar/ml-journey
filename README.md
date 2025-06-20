@@ -41,7 +41,7 @@ To become confident in AI/ML development, build real-world projects, and be job-
 
 ## 🔗 Connect With Me
 
-- 📧 Email: (samarthkaranjkar5625@gmail.com)
+- 📧 Email: (@gmail.com)
 - 🌐 LinkedIn: (www.linkedin.com/in/samarth-karanjkar-b1506926b)
 
 ---
